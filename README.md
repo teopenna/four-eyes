@@ -1,0 +1,1 @@
+Named after the four-eyes principle in banking: no consequential action without a second pair of eyes, human or automated.”
